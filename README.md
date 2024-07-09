@@ -1,0 +1,8 @@
+![WhatsApp Image 2024-07-09 at 7 08 45 PM](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/c70e4fd3-68f4-4e36-9611-94cc4f9b80c3)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (7)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/88d3a24a-83f0-488b-96c3-f8d571fea6c2)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (6)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/932d4459-6556-4eee-b901-af153d543bc3)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (5)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/36831870-0a62-401b-924f-527e62f19a48)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (4)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/b1ac0303-4b40-49d4-a619-702b5f9f6608)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (3)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/84b06dcc-251e-4f78-84b3-54af241f9020)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (2)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/5379edfc-b53e-4f4d-a5d9-1de3cfe56659)
+![WhatsApp Image 2024-07-09 at 7 08 45 PM (1)](https://github.com/SyedAreeb4/transmission-line-L-C-calculation/assets/162885590/a4f6c831-6d02-4708-b76e-56fe18156d95)
